@@ -1,4 +1,4 @@
-# Soal permainan bandar live casino pulsasloto blackjack
+# Soal permainan bandar live casino agensloto blackjack
 
 Jika total pemain kurang dari 21, dealer mendapat kesempatan judi bandar live casino agensloto untuk menyelesaikan tangan mereka. Dealer tidak menyerah, membagi, atau menggandakan, dan ketika totalnya 17 atau lebih, mereka biasanya wajib berdiri. Jika dealer bangkrut, pemain menang. Jika baik pemain maupun dealer tidak gagal, kartu yang lebih tinggi menang. Kemenangan pemain normal membayar uang genap, sedangkan kemenangan blackjack membayar 3:2.
 
